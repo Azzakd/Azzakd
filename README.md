@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Azzakd
+- 👀 I’m interested in ... Technology World
+- 🌱 I’m currently learning ... QA Testing, Python
+- 💞️ I’m looking to collaborate on ... Any project to Learn and get experience
+- 📫 How to reach me ... Kevinfedz2@gmail.com - Discord: Azzakd#3912
